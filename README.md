@@ -1,4 +1,4 @@
-# 👋 Hi there, I’m Beenish (@beenish159)!
+# 👋 Hi there, I’m (@beenish159)!
 
 - 👩‍💻 I’m passionate about **Web Designing** and **Creative web design Development**
 - 🎓 Currently learning **Computer Science** and exploring **Web Technologies**
