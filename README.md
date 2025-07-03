@@ -6,7 +6,7 @@
 
 🤝 Looking to collaborate on Website Design Projects, UI/UX Design, and Game Development Projects
 
-📫 Reach me at: fa4743708@gmail.com
+📫 Reach me at: creativestudio614@gmail.com
 
 😄 Pronouns: She/Her
 
